@@ -1,4 +1,4 @@
-#  
+#  Experience rivals like never before with rivals automatic Script, the #1 Script. Includes one-hit kill and no cooldown for unbeatable performance.
 
 
 
